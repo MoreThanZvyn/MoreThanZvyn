@@ -5,5 +5,5 @@
 - You will find I post everything on my Bluesky and Ko-fi @MoreThanZvyn!
 - You can reach me on Ko-fi or Bluesky, or if you're lucky enough, you could reach me on Discord if you have it!
 - Please check out my Commissions either on Ko-fi or my Straw.page, it would be much appreciated if you could tell people about it!
-My Ko-fi: https://ko-fi.com/morethanzvyn
-My Bluesky https://bsky.app/profile/morethanzvyn.bsky.social
+- --> https://ko-fi.com/morethanzvyn
+- --> https://bsky.app/profile/morethanzvyn.bsky.social
